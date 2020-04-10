@@ -40,6 +40,7 @@ In a situation when a person expresses their discomfort, the other person is exp
 Following the The Sexual Harassment Act, 2013, we have made an Internal Complaints Committee (ICC), and decided on it's processes for making a complaint and inquiring into the complaint in a time bound manner.
 
 Wildfire ICC Details - https://slack-files.com/TSG69FMD5-F011WCZNTR7-9ce06cf3cd
+
 Handbook on Sexual Harassment - https://slack-files.com/TSG69FMD5-F011WEDTV17-cac9c5937a
 
 In addition to ensuring compliance, the law recommends the following for Employers:
